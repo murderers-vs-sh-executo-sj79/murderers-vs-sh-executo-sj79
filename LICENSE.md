@@ -1,4 +1,4 @@
-
+Get steal a brainrot prem Scripts Free: auto-steal & inv-mode and enjoy free, premium-quality scripts for steal a brainrot! Our auto-steal and inv-mode features are designed to give you the upper hand, without breaking the bank. Join a community of winners who rely on steal a brainrot prem Scripts Free: auto-steal & inv-mode for their daily dose of success.
 
 
 ---
